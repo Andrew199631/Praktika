@@ -1,3 +1,3 @@
 # Praktika
-Praktika
-jkhjhjh
+Andrew Emelyanov
+
